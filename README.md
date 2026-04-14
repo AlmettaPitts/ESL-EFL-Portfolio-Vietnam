@@ -22,3 +22,5 @@ Licensed Independent Clinical Social Worker (LICSW)
 TEFL Certified
 Certified Brainspotting Practitioner
 4,000+ hours of direct counseling and clinical service
+
+© Almetta Pitts · Attemla Consulting · All rights reserved.
