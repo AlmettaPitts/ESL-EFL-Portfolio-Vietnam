@@ -1,4 +1,5 @@
 Almetta Pitts | ESL/EFL Educator Portfolio
+
 A bilingual teaching portfolio for international ESL/EFL applications. Almetta Pitts brings a BA in English Literature, a Master of Social Work, and 4,000+ clinical hours into every classroom — from kindergarten to university.
 
 What's Inside
